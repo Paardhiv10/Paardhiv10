@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Paardhiv10
-- 👀 I’m interested in Web Development 
+- 👀 I’m currently working as a Software Developer 
 - 💞️ I also have a keen interest in Startups and Entrepreneurship
 - 📫 How to reach me paardhiv01@gmail.com
 
